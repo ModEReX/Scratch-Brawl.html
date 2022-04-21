@@ -4,6 +4,5 @@ To use this, download either 60 fps ver.(FASTER, HARDER) or 30 fps ver.(SLOWER, 
 
 30 fps ver.:
 
-https://ucarecdn.com/b971cd65-c13b-4f8e-85c3-137e80c83c8a/
-
+https://www.mediafire.com/file/rgjye0prkfytypv/Scratch+brawl.html/file
 by ModEReX
